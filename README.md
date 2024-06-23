@@ -2,7 +2,7 @@
 - 👀 I’m interested in exploring the tech world and learning something new everyday. 
 - 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on any kind of project that can help me learn and grow.
-- 📫 You can reach me on my email 12230054.gcit@rub.edu.bt
+- 📫 You can reach me on my email tenzinchoeda703@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: have a sweet tooth.
 
