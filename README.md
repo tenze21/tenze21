@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Tenzin Choeda feel free to call me tenze 😊.
 - 👀 I’m interested in exploring the tech world and learning something new everyday. 
-- 🌱 I’m currently learning computer science.
+- 🌱 I’m currently learning the low level stuff and blockchain development.
 - 💞️ I’m looking to collaborate on any kind of project that can help me learn and grow.
-- 📫 You can reach me on my email tenzinchoeda703@gmail.com
+- 📫 You can reach me on my email tenzinchoda365@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: have a sweet tooth.
 
