@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tenzin Choeda feel free to call me tenze 😊.
 - 👀 I’m interested in almost anything. 
-- 🌱 I’m currently learning the low level stuff and blockchain development.
+- 🌱 I’m currently working on my math and delving more into the low level stuff.
 - 💞️ I’m looking to collaborate on any kind of project that can help me learn and grow.
 - 📫 You can reach me on my email tenzinchoda365@gmail.com
 - 😄 Pronouns: he/him
